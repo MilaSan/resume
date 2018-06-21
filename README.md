@@ -1,4 +1,5 @@
 # Camila Santo
+San Jose, CA
 1-510-396-8414
 
 camila.santo@gmail.com  
@@ -40,6 +41,13 @@ Founder, executive director and business consultant | January 2009 - December 20
 * Team management of 120 people including contractors and permanent staff (99% retention rate).
 * Developed social media strategies and business recommendations resulting in $200K of savings for SB clients.
 
+Cannes Water Symposium, France - Cannes, Côte d’Azur
+Marketing in South America honored as Proposer of a UNESCO Chair | January 2006 – December 2009
+* Researched and identified dozens of key LatAm participants, business opportunities, supporting travel organization, meetings, including with the media.
+
+
+## PROJECTS
+
 Entertainment Engineering Lab, UFRJ, Brazil - Rio de Janeiro, RJ
 Project manager | September 2009 – December 2016
 * Public speaker and panelist for annual event with an audience of 400 students/year bringing first foreign speakers from 2013 on.
@@ -47,7 +55,3 @@ Project manager | September 2009 – December 2016
 ND Communication, Brazil - Rio de Janeiro, RJ
 Marketing manager | June  2007 – August 2012
 * Public relations for two events (3K+ audience) responsible for increasing 500+ business contacts through meetings with public and nonprofit organizations, LatAm consulates, influencers and media partners.
-
-Cannes Water Symposium, France - Cannes, Côte d’Azur
-Marketing in South America honored as Proposer of a UNESCO Chair | January 2006 – December 2009
-* Researched and identified dozens of key LatAm participants, business opportunities, supporting travel organization, meetings, including with the media.
